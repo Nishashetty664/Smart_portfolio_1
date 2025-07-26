@@ -42,7 +42,7 @@ smart_portfolio/
 
 ## 📸 vedio of working 
 
-
+https://drive.google.com/file/d/1iobr4kVi1Aim2Ri9umu2THqBunOI7oLb/view?usp=sharing
 
 ---
 
